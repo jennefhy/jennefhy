@@ -1,6 +1,6 @@
 # 👩🏻‍💻 Jennefhy Saiury
 
-Me chamo Jennefhy Saiury, tenho 21 anos e sou natural do Rio Grande do Norte. Concluí o ensino médio no IFPB, com o curso técnico em informática. Atualmente, estou cursando Tecnologia da Informação na UFERSA.
+Me chamo Jennefhy Saiury, tenho 22 anos e sou natural do Rio Grande do Norte. Concluí o ensino médio no IFPB, com o curso técnico em informática. Atualmente, estou cursando Tecnologia da Informação na UFERSA.
 
 ---
 
